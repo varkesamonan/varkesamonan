@@ -3,4 +3,4 @@
 - 🌱 I’m currently learning institute
 - 💞️ I’m looking to collaborate on gg))
 - 📫 How to reach me reach
-- of cource
+- of cource///
