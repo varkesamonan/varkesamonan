@@ -4,4 +4,4 @@
 - 💞️ I’m looking to collaborate on gg))
 - 📫 How to reach me reach
 - of cource... balance
-- always forget my birthday
+- already names
