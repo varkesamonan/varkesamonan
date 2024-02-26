@@ -7,4 +7,4 @@
 - already names server
 - taiko forever together
 - mantle forever too
-- katla taiko
+- katla taiko quest
