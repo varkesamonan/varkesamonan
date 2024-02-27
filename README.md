@@ -8,3 +8,4 @@
 - taiko forever together
 - mantle forever too
 - katla taiko quest
+- and combinations
