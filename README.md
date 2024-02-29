@@ -7,5 +7,5 @@
 - already names server
 - taiko forever together
 - mantle forever too
-- katla taiko quest
+- katla taiko quest holesky
 - and combinations
