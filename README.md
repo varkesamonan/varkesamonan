@@ -8,4 +8,4 @@
 - taiko forever together
 - mantle forever too
 - katla taiko quest holesky
-- and combinations of 25th
+- and combinations of 25th to 4th
