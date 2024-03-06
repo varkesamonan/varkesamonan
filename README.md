@@ -8,4 +8,4 @@
 - taiko forever together
 - mantle forever too
 - katla taiko quest holesky complited
-- and combinations of 25th to 4th
+- and combinations of 25th to 4th april
