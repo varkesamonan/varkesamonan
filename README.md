@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning institute
 - 💞️ I’m looking to collaborate on gg))
 - 📫 How to reach me reach
-- of cource... balance
+- of cource... balance acc
 - already names server
 - taiko forever together
 - mantle forever too
