@@ -6,6 +6,6 @@
 - of cource... balance acc
 - already names server
 - taiko forever together
-- mantle forever too
+- mantle forever too much
 - katla taiko quest holesky complited
 - and combinations of 25th to 4th april
