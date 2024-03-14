@@ -9,4 +9,4 @@
 - mantle forever too much
 - katla taiko quest holesky complited
 - and combinations of 25th to 4th april
-- duncan eth why grac
+- duncan eth why gracias
