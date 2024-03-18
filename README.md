@@ -11,4 +11,4 @@
 - and combinations of 25th to 4th april
 - duncan eth why gracias
 - cancan eth next
-- goa
+- gouale prize
