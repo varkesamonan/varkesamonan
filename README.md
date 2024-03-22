@@ -5,7 +5,7 @@
 - 📫 How to reach me reach
 - of cource... balance acc
 - already names server towns
-- taiko forever together
+- taiko forever together wines
 - mantle forever too much
 - katla taiko quest holesky complited
 - and combinations of 25th to 4th april
