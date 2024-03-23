@@ -4,7 +4,7 @@
 - 💞️ I’m looking to to night
 - 📫 How to reach me reach
 - of cource... balance acc
-- already names server towns
+- already names several towns 
 - taiko forever together wines
 - mantle forever too much
 - katla taiko quest holesky complited
