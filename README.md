@@ -9,6 +9,4 @@
 - mantle forever too much
 - katla taiko quest holesky complited
 - and combinations of 25th to 4th april
-- duncan eth why gracias
-- cancan eth next
-- gouale prize proposal
+- duncan eth cool
