@@ -2,7 +2,7 @@
 - 👀 I’m interested in computers
 - 🌱 I’m currently learning institute
 - 💞️ I’m looking to to night
-- 📫 How to reach me reach
+- 📫 How to reach me reach hub
 - of cource... balance acc
 - already names several towns 
 - taiko forever together wines
