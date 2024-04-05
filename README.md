@@ -10,4 +10,4 @@
 - katla taiko quest holesky complited
 - and combinations of 25th to 4th april
 - duncan eth cool reever
-- 47 a.g.
+- 47 a.g. pepe
