@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning institute
 - 💞️ I’m looking to to night
 - 📫 How to reach me reach hub
-- of cource... balance acc
+- of cource... balance account
 - already names several towns 
 - taiko forever together wines
 - mantle forever too much small
