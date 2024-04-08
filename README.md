@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @varkesamonan
 - 👀 I’m interested in computers
 - 🌱 I’m currently learning institute
-- 💞️ I’m looking to to night
+- 💞️ I’m looking to to night plotter
 - 📫 How to reach me reach hub
 - of cource... balance account
 - already names several towns 
