@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning institute
 - 💞️ I’m looking to to night plotter
 - 📫 How to reach me reach hub
-- of cource... balance account
+- of cource... balance account was stone
 - already names several towns 
 - taiko forever together wines
 - mantle forever too much small
