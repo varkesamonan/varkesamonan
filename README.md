@@ -4,7 +4,7 @@
 - 💞️ I’m looking to to night plotter
 - 📫 How to reach me reach hub
 - of cource... balance account was stone
-- already names several towns 
+- already names several towns currently
 - taiko forever together wines
 - mantle forever too much small
 - katla taiko quest holesky complited
