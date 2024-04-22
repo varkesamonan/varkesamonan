@@ -11,4 +11,4 @@
 - and combinations of 25th to 4th april
 - duncan eth cool reever
 - 47 a.g. pepe posting last month
-- permanent stop loss curlasan
+- permanent stop loss curlasan amonan
