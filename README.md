@@ -9,7 +9,7 @@
 - mantle forever too much small budge
 - katla taiko quest holesky complited
 - and combinations of 25th to 4th april
-- duncan eth cool reever
+- duncan eth cool reever after tomorrow
 - 47 a.g. pepe posting last month
 - permanent stop loss curlasan amonan
 - sepolia eth my main active faza net
