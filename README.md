@@ -12,4 +12,4 @@
 - duncan eth cool reever after tomorrow
 - 47 a.g. pepe posting last month
 - permanent stop loss curlasan amonan
-- sepolia eth my main active faza net
+- sepolia eth my main active faza net blasze
