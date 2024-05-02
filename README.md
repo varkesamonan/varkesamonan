@@ -13,3 +13,4 @@
 - 47 a.g. pepe posting last month
 - permanent stop loss curlasan amonan
 - sepolia eth my main active faza net blasze
+- element fife
