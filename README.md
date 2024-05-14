@@ -14,4 +14,4 @@
 - permanent stop loss curlasan amonan
 - sepolia eth my main active faza net blasze
 - element fife avatar world threes more
-- l0 sibill attach stride games
+- l0 sibill attach stride games mail
