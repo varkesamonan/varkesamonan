@@ -15,6 +15,6 @@
 - sepolia eth my main active faza net blasze
 - element fife avatar world threes more
 - l0 sibill attach stride games mail
-- photo session one type
+- photo session one type lamp
 - low gas moon night
 - Vesteros dragon
