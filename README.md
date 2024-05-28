@@ -5,7 +5,7 @@
 - 📫 How to reach me reach hub
 - 📫 of cource... balance account was stone
 - 📫 already names several towns currently
-- 📫 taiko forever together wines
+- 📫 taiko forever together wines need
 - mantle forever too much small budge
 - katla taiko quest holesky complited
 - and combinations of 25th to 4th april
