@@ -6,7 +6,7 @@
 - 📫 of cource... balance account was stone
 - 📫 already names several towns currently
 - 📫 taiko forever together wines need
-- mantle forever too much small budge
+- mantle forever too much small budge mutant
 - katla taiko quest holesky complited
 - and combinations of 25th to 4th april
 - duncan eth cool reever after tomorrow
