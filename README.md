@@ -15,6 +15,6 @@
 - sepolia eth my main active faza net blasze
 - element fife avatar world threes more
 - l0 sibill attach stride games mail
-- photo session one type lamp
+- photo session one type lamp prestigio
 - low gas moon night sonya blade
 - Vesteros dragon day pizza normal
