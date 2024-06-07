@@ -17,4 +17,4 @@
 - l0 sibill attach stride games mail
 - photo session one type lamp prestigio
 - low gas moon night sonya blade thrue
-- Vesteros dragon day pizza normal
+- Vesteros dragon day pizza normal quartal
