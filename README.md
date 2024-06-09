@@ -14,7 +14,7 @@
 - permanent stop loss curlasan amonan
 - sepolia eth my main active faza net blasze
 - element fife avatar world threes more
-- l0 sibill attach stride games mail
+- l0 sibill attach stride games mail people
 - photo session one type lamp prestigio
 - low gas moon night sonya blade thrue victory
 - Vesteros dragon day pizza normal quartal
