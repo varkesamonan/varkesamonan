@@ -10,7 +10,7 @@
 - katla taiko quest holesky complited
 - and combinations of 25th to 4th april
 - duncan eth cool reever after tomorrow
-- 47 a.g. pepe posting last month
+- 47 a.g. pepe posting last month ether
 - permanent stop loss curlasan amonan
 - sepolia eth my main active faza net blasze
 - element fife avatar world threes more
