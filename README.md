@@ -7,7 +7,7 @@
 - 📫 already names several towns currently
 - 📫 taiko forever together wines need
 - mantle forever too much small budge mutant
-- katla taiko quest holesky complited
+- katla taiko quest holesky complited token
 - and combinations of 25th to 4th april zora
 - duncan eth cool reever after tomorrow
 - 47 a.g. pepe posting last month ether
