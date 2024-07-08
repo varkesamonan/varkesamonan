@@ -11,7 +11,7 @@
 - and combinations of 25th to 4th april zora
 - duncan eth cool reever after tomorrow
 - 47 a.g. pepe posting last month ether
-- permanent stop loss curlasan amonan like
+- permanent stop loss curlasan amonan like private
 - sepolia eth my main active faza net blasze
 - element fife avatar world 1.4 threes more pelegrino
 - l0 sibill attach stride games mail people
