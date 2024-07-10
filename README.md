@@ -9,7 +9,7 @@
 - mantle forever too much small budge mutant
 - katla taiko quest holesky complited token
 - and combinations of 25th to 4th april zora
-- duncan eth cool reever after tomorrow
+- duncan eth cool reever after tomorrow land
 - 47 a.g. pepe posting last month ether fine
 - permanent stop loss curlasan amonan like private
 - sepolia eth my main active faza net blasze
