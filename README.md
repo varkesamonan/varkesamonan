@@ -12,7 +12,7 @@
 - duncan eth cool reever after tomorrow land
 - 47 a.g. pepe posting last month ether fine dao
 - permanent stop loss curlasan amonan like private
-- sepolia eth my main active faza net blasze
+- sepolia eth my main active faza net blasze portfolio
 - element fife avatar world 1.4 threes more pelegrino
 - l0 sibill attach stride games mail people
 - photo session one type right lamp prestigio born
