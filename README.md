@@ -2,7 +2,7 @@
 - 👀 I’m interested in computers
 - 🌱 I’m currently learning institute
 - 💞️ I’m looking to to night plotter
-- 📫 How to reach me reach hub
+- 📫 How to reach me reach hub rest
 - 📫 of cource... balance account was stone
 - 📫 already names several towns currently
 - 📫 taiko forever together wines need
